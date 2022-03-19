@@ -6,3 +6,5 @@ kjghjkhkhkj
 this is a task
 
 asd
+
+Ruslan da bomba oglandi
